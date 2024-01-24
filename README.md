@@ -1,5 +1,5 @@
 # Python-Project-1
 SYED BILAL NADEEM 
-I AM 28 Years Old 
-My Qualification us Graduation
-Currently I am working in a private sector 
+BANO QABIL STUDENT 
+CLASS 8:00 PM to 10:00 PM
+LACATION : NAZIMABAD 
